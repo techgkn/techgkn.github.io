@@ -1,5 +1,6 @@
 # TechGkN  
 [s.p.u.d.](https://linktr.ee/s_p_u_d)
+
 [github](https://github.com/techgkn)  
 [reddit](https://www.reddit.com/u/techgkn)  
 [steam](https://steamcommunity.com/id/techgkn/)  
